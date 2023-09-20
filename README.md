@@ -8,3 +8,5 @@
   ### você pôde entrar em contato comigo
 
 - 📫 luiz.cezar.cruz@escola.pr.gov.br
+
+![](https://media.tenor.com/hm9e4BgR4rMAAAAC/hi-hello.gif)
