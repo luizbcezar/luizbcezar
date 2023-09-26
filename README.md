@@ -4,9 +4,10 @@
 - meu signo é câncer
 - sou estudante 
 - quero ser tratorista
+- eu namoro
 
-  ### você pôde entrar em contato comigo
+   ### você pôde entrar em contato comigo
 
 - 📫 luiz.cezar.cruz@escola.pr.gov.br
 
-![](https://media.tenor.com/hm9e4BgR4rMAAAAC/hi-hello.gif)
+![](https://media.tenor.com/7gNfDS3qUbIAAAAd/dance-happy.gif)
