@@ -10,4 +10,4 @@
 
 - 📫 luiz.cezar.cruz@escola.pr.gov.br
 
-![](https://media.tenor.com/7gNfDS3qUbIAAAAd/dance-happy.gif)
+![](https://media.tenor.com/emB8geA7MT0AAAAC/yes-yay.gif)
